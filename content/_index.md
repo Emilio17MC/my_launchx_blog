@@ -7,7 +7,5 @@ Hola ✌️  soy el explorer **Emilio** y este es mi blog personal donde compart
 
 Te invito a conocer mis aprendizajes y leer mis experiencias.
 
-Mis expectativas para este proyecto son: 
-
 
 🚀
